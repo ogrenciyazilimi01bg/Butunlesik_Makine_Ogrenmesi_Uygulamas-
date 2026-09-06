@@ -1,0 +1,1 @@
+# Butunlesik_Makine_Ogrenmesi_Uygulamas-
